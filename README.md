@@ -1,0 +1,2 @@
+# Schoolcheats
+Cheats for school
